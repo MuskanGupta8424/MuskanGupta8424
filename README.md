@@ -10,5 +10,5 @@
 - 📫 How to reach me: You can message me on Linkedin :"https://www.linkedin.com/in/muskan-b0a982220/"
 - 💬 Also You can message me on my email -"@mg8303655@gmail.com".
 - 😇 Portfolio - "https://muskan-gupta-portfolio-8424.netlify.app/"
-- ⚡ Fun fact: I love to speak with stranger person.
+- ⚡ Fun fact: I like talking to strangers.
 

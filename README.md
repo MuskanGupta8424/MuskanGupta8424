@@ -8,7 +8,7 @@
 - 🤔 I’m looking for help with ...
 - 💭 Ask me about ...
 - 📫 How to reach me: You can message me on Linkedin :"https://www.linkedin.com/in/muskan-581a19311/"
-- 💬 Also You can message me on my email -"@mg8303655@gmail.com".
+- 💬 Also You can message me on my email -"@muskangupta.frontend@gmail.com".
 - 😇 Portfolio - "https://muskan-gupta-portfolio-8424.netlify.app/"
   
 
